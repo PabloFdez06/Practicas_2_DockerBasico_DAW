@@ -1,0 +1,1 @@
+He tenido problemas realizando esta práctica, no tengo tiempo suficiente y debo empezarla de cero debido a esos problemas, la realizare más adelante.
